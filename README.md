@@ -1,14 +1,15 @@
-#    -  `` remaking this soon! Heavy WIP.  `` .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
-{ follow spam account! , if unawanted block. Check out also my Links! }
+#       Truth is something we must find – honest is something we must be, 
+ .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
 
     
 
 
  
 
-   
-  ><img width="280" height="280" alt="Image" src="https://github.com/user-attachments/assets/89e8c136-cf1c-438f-a232-b7c4610d628c" />
-  
+   <p align="center">
+  <img width="460" height="300" src="file:///C:/Users/Alejandro/Downloads/download__4_-removebg-preview.png">
+</p>
+ 
 
-<p align="center">17teen _________⌒⌒   ,  ᶻ 𝗓 𐰁   INTJ  _________⌒⌒ freely c+h.</p>
+<p align="center"> even if it means being a jerk sometimes.</p>
 <p>
